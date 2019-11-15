@@ -1,2 +1,1 @@
-# keep-learning
-keep-learning
+# 记录本身，即已是反抗
